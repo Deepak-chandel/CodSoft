@@ -1,1 +1,1 @@
-Thank you for the opporyunity to lend me these taks # CodSoft
+Thank you for the opportunity to lend me these taks # CodSoft
